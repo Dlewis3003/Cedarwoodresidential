@@ -1,2 +1,2 @@
 # Cedarwoodresidential
-Internal description for Cedarwoodreisdential.com
+Internal description for Cedarwoodresidential.com
